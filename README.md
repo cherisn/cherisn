@@ -9,4 +9,3 @@
 📫 How to reach me: snehavasch@gmail.com
 I’d love to connect with like-minded professionals, so feel free to reach out if you’re working on something interesting or have advice on entering the data analytics field!
 😄 Pronouns: she/her
-
